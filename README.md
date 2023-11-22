@@ -12,7 +12,3 @@
 > ![image](https://github.com/outhree/MapleRaider/assets/143361434/4b93df8c-f353-448d-aebe-24f929a62cc0)
 
 
-
-## [🎥] **NEW VIDEO**
-> ![image](https://github.com/outhree/MapleRaider/assets/143361434/e6b04b80-44c5-4326-9238-3a202631dd4b)
-> https://www.youtube.com/watch?v=lCRkR0elJS0&t=5s
